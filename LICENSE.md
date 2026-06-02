@@ -1,4 +1,4 @@
-# 
+# Advanced grid trading bot for futures plugins for Mac OS | Turbo grid trading bot for futures plugins for PC Windows. Featuring blockchain indexing and momentum analysis — optimized for maximum performance on every platform.
 
 
 
